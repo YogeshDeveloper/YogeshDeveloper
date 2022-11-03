@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @YogeshDeveloper
+- 👋 Hi, I’m Yogesh
 - Connect with me on https://www.linkedin.com/in/yogesh-sp-8503b878/
